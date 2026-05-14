@@ -1,4 +1,4 @@
-# 
+# MathType for PC | MathType for Windows premium Addon: signal-processing & simulation is the best MathType for PC | MathType for Windows addon, featuring signal-processing and
 
 
 
